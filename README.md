@@ -1,6 +1,7 @@
 ### 
-![0_41inHKnPhGb04HsO-ezgif com-crop](https://github.com/glyphn/glyphn/assets/31204969/1cc67c57-6ee6-4db6-83e1-4cbef1797bf9)
 
+
+![tumblr_oo4bf9CiMK1twvy9ro1_1280](https://github.com/glyphn/glyphn/assets/31204969/ec548da2-0cbf-4e29-90f5-b296152a83ba)
 
 
 <!--
